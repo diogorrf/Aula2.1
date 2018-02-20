@@ -1,4 +1,0 @@
-Angelina
-Angelica
-Deborah
-Xuxa
