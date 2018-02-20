@@ -1,3 +1,4 @@
 Angelina
-Bruna
+Angelica
 Deborah
+Xuxa
